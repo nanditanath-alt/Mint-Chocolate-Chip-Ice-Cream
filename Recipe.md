@@ -1,0 +1,4 @@
+Step 1: In a large bowl, we'll take the milk, cream, sugar, salt, vanilla extract and peppermint extract and stir these ingredients together until the sugar dissolves completely. I don't prefer to use a electric beater for it. I personally feel its better if you stir it with a silicon spetula or a manual hand beater.
+Step 2: After this, pour the whole mixture into an ice-cream maker, and freeze according to the instructions of the machine's manufacturer. After about 10-15 minutes into the freezing, add the semisweet or dark choco-chips.
+Step 3: The ice-cream will be enough thickened, after 30-35 minutes of freezing, to spoon it into a container for the ice-cream maker. After pouring the whole thing into the container, again put it in the freezer for 120 min[ 2hrs ].
+And now, The ice-cream is ready to melt in our mouth! Enjoy it!

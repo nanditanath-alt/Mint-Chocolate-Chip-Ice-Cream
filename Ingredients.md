@@ -1,0 +1,2 @@
+The following amount of Ingredients is serves 8 people with 2 quarts each:-
+2 cups of 2% milk, 2 cups of heavy cream, 1 cup of sugar, 1/2 teaspoon salt, 1 teaspoon vanilla extract, 1 teaspoon of peppermint extract, 3 drops green food coloring for a very colorful result (optional) and last but not the least, we'll need a cup of miniature semisweet chocolate chips.
